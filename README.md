@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Quan3103 and I'm working for an international headhunting firm.
-- 💞️ I’m looking to collaborate with you on new job opportunties 
+- 👋 Hi, I’m @Quan3103 and I'm working for an international headhunting firm named Manpower Group.
+- 💞️ I’m looking to collaborate with you on new job opportunities at our clients in Technology domain.
 - 📫 You can always reach me at (+84) 946 569 859 (Zalo/Viber/WhatsApp/Direct) or through Quan.Pham@manpower.com.vn
 
 <!---
